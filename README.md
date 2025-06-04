@@ -4,7 +4,7 @@ ___
 
 Я живу в Таганроге <br>
 Учусь в академии нейросетей [The Founder](https://dnk.the-founder.ru/) <br>
-Можно связаться со мной по ТГ: [@vasivasilek](https://t.me/vasivasilek) <br>
+Со мной можно связаться по ТГ: [@vasivasilek](https://t.me/vasivasilek) <br>
 
 ---
 
